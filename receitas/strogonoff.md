@@ -16,6 +16,8 @@
 - 1 copo de creme de leite
 - [batata palha](https://blog.tudogostoso.com.br/cardapios/receitas-faceis/receitas-com-batata-palha/) a gosto
 
+
+
 ## MODO DE PREPARO
 
 1. Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
